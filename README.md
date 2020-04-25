@@ -1,0 +1,1 @@
+howerEffect-3dIsometricSocialMediaIcon
